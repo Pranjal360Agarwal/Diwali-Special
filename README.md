@@ -1,2 +1,2 @@
 # Diwali-Special
-Wishes for prosperous Diwali
+Wishes for prosperous Diwali.
